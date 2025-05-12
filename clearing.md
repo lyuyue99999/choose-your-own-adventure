@@ -1,0 +1,1 @@
+You slide down the tree and dash toward the clearing, branches whipping at your arms. As you reach the edge, the firelight flickers over a small, empty campsite—but the smoke is still warm. Someone—or something—was just here.
