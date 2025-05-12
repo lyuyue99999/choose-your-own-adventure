@@ -1,0 +1,1 @@
+You hold your breath and remain still, barely daring to blink. The glowing eyes linger for a moment… then vanish into the underbrush. The forest is silent again—but now you're not sure where the watcher went.
